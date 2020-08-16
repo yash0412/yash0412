@@ -1,4 +1,4 @@
-### Hi there 👋
+### El Psy Kongroo ⚡
 
 <!--
 **yash0412/yash0412** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
